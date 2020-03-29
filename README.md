@@ -1,1 +1,2 @@
-# ramonlicar7-gmail.com
+Atendimento - Meu Supermercado Online
+Só um instante, seu atendimento iniciará em breve...
